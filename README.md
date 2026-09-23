@@ -5,5 +5,5 @@
 <p align="center">◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 <p align="center"> the   bells   are   very   loud   today.
 <p align="center">◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟    
-<p align="center"> ![Profile Views](https://komarev.com/ghpvc/?username=mellowyn&style=flat-square&color=lightgrey&label=lawliet)
+![Profile Views](https://komarev.com/ghpvc/?username=mellowyn&style=flat-square&color=lightgrey&label=lawliet)
 <p align="center">     
