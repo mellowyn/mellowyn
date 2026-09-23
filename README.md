@@ -1,8 +1,9 @@
-> creds to @nevalue on pint
-<p align="center"> <img src="https://i.pinimg.com/1200x/5e/6d/60/5e6d60c3d54f42e310d695b98a58eb67.jpg" alt="lawliet" />
+> creds to @Zrzz_ on X
+<p align="left">
+  <img src="https://i.pinimg.com/736x/6e/aa/36/6eaa36deee2403dc9b34d4618db3d9a7.jpg" width="280" align="right">
 <p align="center">     
-<p align="center">⊹　　　⁺　　　₊　　　⁺　　　₊
-<p align="center"> c + h freely always no need to ask for permission. very awkward at first sight & nervous when meeting new people. mostly o-t so w2i. pls lmk if i make u uncomfy in any aspect. i dont use ttgs nor do i need them but tell me if you do.
-<p align="center">⊹　　　⁺　　　₊　　　⁺　　　₊
-<p align="center">         
+<p align="center">◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+<p align="center"> the   bells   are   very   loud   today.
+<p align="center">◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟    
+<p align="center"> ![Profile Views](https://komarev.com/ghpvc/?username=mellowyn&style=flat-square&color=lightgrey&label=lawliet)
 <p align="center">     
